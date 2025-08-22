@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Muhamad Kelvin Saputra, [LinkedIn](https://www.linkedin.com/in/muhamad-kelvin-saputra-40a655289)
+* Oon Arfiandwi, [oo.or.id](https://oo.or.id)
